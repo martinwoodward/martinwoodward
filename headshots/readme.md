@@ -10,7 +10,7 @@ Various headshots below.  [Martin2022-square-social.jpg](Martin2022-square-socia
 
 <img width=256 src="Martin-GitHub2022-1.jpg">
 
-<img width=256 src="Martin2024-fulllength.jpg">
+<img width=256 src="Martin2024-fulllength.jpg"><br/>Note: 167cm / 65.75 inches tall.
 
 <img width=256 src="martinwo_dark.png">
 
